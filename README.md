@@ -10,4 +10,4 @@
 
 本站提供海量高清免费国产资源，涵盖日韩、三级、不卡、APP推荐等热门类型。播放流畅不卡顿，无需注册，支持多平台设备在线畅享，打造纯净无广告的观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/linh20250708/linh7 ）</span>
